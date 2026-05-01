@@ -12,7 +12,7 @@ BCA student with 7 years of entrepreneurship experience before going back
 to college. Now pivoting into Data Science and Analytics — building skills, 
 certifications, and real projects to back it up.
 
-Targeting a PG Diploma in Data Science/Analytics in Canada (Humber College, 2028).
+Targeting a PG Diploma in Data Science/Analytics.
 
 ---
 
