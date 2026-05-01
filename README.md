@@ -1,7 +1,7 @@
 # Hey, I'm Ankit 👋
 
 🎓 BCA Student @ Manipal University Jaipur (2025–2028)  
-🎯 Aspiring Data Analyst | Canada-bound 2028  
+🎯 Aspiring Data Analyst |  
 📍 Patna, Bihar, India
 
 ---
